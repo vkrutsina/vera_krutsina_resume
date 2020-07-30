@@ -1,1 +1,1 @@
-# vera_krutsina_resume.md
+# Vera Krutsina 
